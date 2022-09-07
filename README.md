@@ -1,0 +1,1 @@
+# StrukDatMinggu02_71180402
